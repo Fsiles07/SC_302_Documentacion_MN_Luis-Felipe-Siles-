@@ -1,1 +1,1 @@
-# SC_302_Documentacion_MN_Luis-Felipe-Siles-
+# SC_302_Documentacion_MN_Felipe
